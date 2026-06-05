@@ -1,1 +1,1 @@
-Thiranex Internship Task 1 
+Thiranex Internship Tasks
